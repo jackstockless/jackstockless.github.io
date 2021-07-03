@@ -1,0 +1,2 @@
+# jackstockless.github.io
+Blog
